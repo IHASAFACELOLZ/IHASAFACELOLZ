@@ -10,4 +10,4 @@
 
 <img width="300" height="300" src="https://media.discordapp.net/attachments/1290390783001759806/1418443596419305613/Untitled3714_20250918234754.png?ex=68ce240a&is=68ccd28a&hm=6d3a7eb884885b0bf3c44be610a96fa2a55ea90432b5bac7499699b8f7c4c2a5&=&format=webp&quality=lossless&width=912&height=801" />
 
-me and my big brother(ILYSM BROO <33/p)
+me and my big brother(ILYSM @aureatexx <33/p) 
